@@ -2,7 +2,7 @@
 - 👀 I’m interested in games
 - 🌱 I’m currently learning new things
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me Brazil, MT, (insta:@gabimatiasmorandi)
+- 📫 How to reach me ***
 
 <!---
 Gabizinz/Gabizinz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
